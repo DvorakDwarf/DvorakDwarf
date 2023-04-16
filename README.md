@@ -6,8 +6,9 @@ Contact over discord, preferably. Please do not add me just to have me on the fr
 I also check email and less often twitter.
 
 Not working on Infinite Storage Glitch anymore but it still works \
-Idk why but a quarter of views on the ISG video used to be from Japan \
-I post videos on some projects occasionally through [youtube](https://www.youtube.com/channel/UC9yOoyuHyFwTTrw47GKKp8w)
+I post videos on some projects occasionally through [youtube](https://www.youtube.com/channel/UC9yOoyuHyFwTTrw47GKKp8w) \
+Idk why but a quarter of views on the ISG video used to be from Japan 
+
 
 Some dude asked for a buymeacoffee page so now I have one. Help with future college if you like my stuff
 <a href="https://www.buymeacoffee.com/HistidineDwarf" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-red.png" alt="Buy Me A Coffee" style="height: 60px !important;width: 217px !important;" ></a>
