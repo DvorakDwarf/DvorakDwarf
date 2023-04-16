@@ -13,7 +13,7 @@ I post videos on some projects occasionally through [youtube](https://www.youtub
 Idk why but a quarter of views on the ISG video used to be from Japan 
 
 
-Some dude asked for a buymeacoffee page so now I have one. Help with future college if you like my stuff
+Some dude asked for a buymeacoffee page so now I have one. Help with future college if you like my stuff \
 <a href="https://www.buymeacoffee.com/HistidineDwarf" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-red.png" alt="Buy Me A Coffee" style="height: 60px !important;width: 217px !important;" ></a>
 
 
