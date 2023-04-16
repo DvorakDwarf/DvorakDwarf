@@ -1,4 +1,7 @@
 ### Hey 👋
+
+![smaller](https://user-images.githubusercontent.com/96934612/232333246-92ee524b-f696-4a9d-b8cc-a1807f9aae66.png)
+
 I am me. I like coding AI and using Rust, despite the two not meshing together. 
 
 Contact over discord, preferably. Please do not add me just to have me on the friends list. \
