@@ -2,7 +2,8 @@
 I am me. I like coding AI and using Rust, despite the two not meshing together. 
 
 Contact over discord, preferably. Please do not add me just to have me on the friends list. \
-Discord: HistidineDwarf#8927    
+Discord: HistidineDwarf#8927 \
+I also check email and less often twitter.
 
 Not working on Infinite Storage Glitch anymore but it still works
 
