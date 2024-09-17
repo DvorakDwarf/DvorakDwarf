@@ -9,6 +9,7 @@ Contact over discord, preferably. Please do not add me just to have me on the fr
 I also check email and less often mastodon, twitter.
 
 Not working on Infinite Storage Glitch anymore but it still works \
+I won't be updating the code and the youtube video seems to be corrupted a year later \
 I post videos on some projects occasionally through [youtube](https://www.youtube.com/channel/UC9yOoyuHyFwTTrw47GKKp8w) \
 Idk why but a quarter of views on the ISG video used to be from Japan 
 
