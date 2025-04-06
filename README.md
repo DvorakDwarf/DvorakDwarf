@@ -2,7 +2,7 @@
 
 ![smaller](https://user-images.githubusercontent.com/96934612/232333246-92ee524b-f696-4a9d-b8cc-a1807f9aae66.png)
 
-Not working on Infinite Storage Glitch. Please do no message about fixing it.\
+Not working on Infinite Storage Glitch. Please do no message about fixing it.
 
 I am me. I like coding projects for fun and using Rust. 
 
